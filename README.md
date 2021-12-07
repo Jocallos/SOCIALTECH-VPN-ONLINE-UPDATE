@@ -1,1 +1,1 @@
-# SOCIALTECH-VPN-ONLINE-UPDATE
+Owshie make it drop
